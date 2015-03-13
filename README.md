@@ -21,7 +21,7 @@ This was my trip to the market this morning. Every Friday we have a local market
 ##### One of the house favorites and dirt cheap!  The large tomatoe that is cut open is 5in wide, they are .45c/lb!!!
 ![photo](tomatoes.jpg?raw=true)
 
-##### Peppers, garlic and chilies
+##### Peppers, garlic and chilies!!!!!!
 ![photo](peppers.jpg?raw=true)
 
 ![photo](garlic.jpg?raw=true)
